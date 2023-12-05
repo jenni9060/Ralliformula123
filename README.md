@@ -1,1 +1,1 @@
-[Trello linkki](https://trello.com/b/u8bETnRd/aikataulut)
+[Trello](https://trello.com/b/u8bETnRd/aikataulut)
